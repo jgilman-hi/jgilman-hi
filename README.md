@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @JulietMerida
+- 👋 Hi, I’m Julie
 - 👀 I’m interested in cool stuff
 - 🌱 I’m currently learning how to be a better human
 - 💞️ I’m looking to collaborate on being a better human
